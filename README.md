@@ -1,4 +1,4 @@
-## Hi everyone 👋
+## Hi **everyone* 👋
 
-## Download the app (red_color)
+## A graphic designer and app developer 
 

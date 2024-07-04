@@ -1,5 +1,4 @@
 ## Hi everyone 👋
 
-## Download the app
-
+## Download the app (red_color)
 
